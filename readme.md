@@ -1,0 +1,1 @@
+These are the (non-optimal) solutions to the first two levels of Google Foobar. Now that it is [dead](https://killedbygoogle.com/) and I am no longer restricted from publishing answers, I might as well upload it. I never ended up completing it — I was invited just as I started college and I found college more fun :P
